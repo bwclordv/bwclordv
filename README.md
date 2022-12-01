@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bwclordv
+- 👀 I’m interested in gaming and creating repositories
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on youtube/twitch/twitter
